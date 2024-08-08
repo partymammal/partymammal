@@ -4,4 +4,6 @@
 <br>don't bother being an asshole to me because i love the attention <3</p>
 <p align="center">
 <b>whisper me to talk!</b> i don't look in the local tab and i'm usually offtab
-<br><b>i'm basically always near docks</b> + i don't bite! i usually love talking to people.</p>
+<br><b>i'm basically always near docks</b> + i don't bite! i usually love talking to people.
+<br>i'm rarely alone but you're still free to sit with me, just be mindful of my friends...
+<br>not all of them are as social as i am!</p>

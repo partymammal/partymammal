@@ -5,5 +5,4 @@
 <p align="center">
 <b>whisper me to talk!</b> i don't look in the local tab and i'm usually offtab
 <br><b>i'm basically always near docks</b> + i don't bite! i usually love talking to people.
-<br>i'm rarely alone but you're still free to talk to me, just be mindful of my friends
-<br>because not all of them are as social as i am!</p>
+<br>i'm rarely alone but you're still free to talk or sit with me! i enjoy having company.</p>

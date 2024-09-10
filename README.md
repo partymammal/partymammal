@@ -1,7 +1,7 @@
 <p align="center"><img src="https://files.catbox.moe/1z0z3s.png"></p>
 <h3 p align="center">WADE or FELIX HE/IT 21 ENFP <img src="https://files.catbox.moe/lyogii.png" height="18px"> <img src="https://files.catbox.moe/od5klh.png" height="18px"> <img src="https://files.catbox.moe/ixdzy3.png" height="18px"> ― <a href="https://funny.straw.page/">MORE INFO</a></h3>
 <p align="center"><sup>friendly dog guy on the internet</sup></p>
-<p align="center"><img src="https://files.catbox.moe/icd0r2.png" style="width: 35%;">
+<p align="center"><img src="https://files.catbox.moe/7epstc.png" style="width: 35%;">
 <br><sub>art by pirinmiku on twitter</sub>
 <br><img src="https://files.catbox.moe/4lb9wq.png" width="50%"></p>
 <p align="center">

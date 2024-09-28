@@ -9,4 +9,5 @@
 <p align="center"><b>whisper me if you wanna talk!</b> i don't look in the local tab and i'm usually offtab
 <br>i don't bite! i love talking to people. Very Extroverted but i do get a little anxious.
 <br>i'm rarely alone but you can sit with or near me, i enjoy having company.</p>
+<p align="center"><sub>leave a comment on my <a href="https://deadpool.atabook.org/">atabook?</a></sub></p>
 <p align="center"><img src="https://files.catbox.moe/cz1l06.png"></p>

@@ -4,7 +4,7 @@
 <br><sub>art by pirinmiku on twitter</sub>
 <br><img src="https://files.catbox.moe/4lb9wq.png" width="50%"></p>
 <p align="center">
-<b>if younger than 18 or proship dni.</b> <img src="https://i.imgur.com/lGEPTjd.gif" height="25px">anyone else, i'll just ignore you if i don't like you.
+<b>if younger than 18 or proship dni.</b> <img src="https://i.imgur.com/lGEPTjd.gif" height="25px"> just be decent... thanks! ^_^
 <br>don't bother being an asshole to me because i love the attention <3</p>
 <p align="center"><b>whisper me if you wanna talk!</b> i don't look in the local tab and i'm usually offtab
 <br>i don't bite! i love talking to people. Very Extroverted but i do get a little anxious.

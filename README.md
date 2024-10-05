@@ -2,7 +2,6 @@
 <h3 p align="center">WADE or FELIX HE/IT 21 ENFP <img src="https://files.catbox.moe/lyogii.png" height="18px"> <img src="https://files.catbox.moe/od5klh.png" height="18px"> <img src="https://files.catbox.moe/ixdzy3.png" height="18px"> ― <a href="https://funny.straw.page/">MORE INFO</a></h3>
 <p align="center"><img src="https://files.catbox.moe/46scp9.png" width="30%">
 <br><sub>art by pirinmiku on twitter</sub>
-<br><img src="https://files.catbox.moe/4lb9wq.png" width="50%"></p>
 <p align="center">
 <b>if younger than 18 or proship dni.</b> <img src="https://i.imgur.com/lGEPTjd.gif" height="25px"> just be decent... thanks! ^_^
 <br>don't bother being an asshole to me because i love the attention <3</p>

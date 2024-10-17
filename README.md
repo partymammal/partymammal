@@ -1,6 +1,5 @@
 <p align="center"><img src="https://files.catbox.moe/nc6dxf.png"></p>
 <h3 p align="center">WADE or FELIX HE/IT 21 ENFP <img src="https://files.catbox.moe/lyogii.png" height="18px"> <img src="https://files.catbox.moe/od5klh.png" height="18px"> <img src="https://files.catbox.moe/ixdzy3.png" height="18px"> ― <a href="https://funny.straw.page/">MORE INFO</a></h3>
-<p align="center"><sup>just a guy</sup></p>
 <p align="center"><img src="https://files.catbox.moe/n00qlm.gif" width="22%"></p>
 <p align="center">
 i like deadpool, homestuck, smile for me, welcome home, 

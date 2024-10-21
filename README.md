@@ -3,7 +3,7 @@
 <p align="center"><img src="https://files.catbox.moe/n00qlm.gif" width="22%"></p>
 <p align="center">
 i like deadpool, homestuck, smile for me, welcome home, 
-<br>magnus archives, great god grove, slimecicle, good omens + <a href="https://rentry.co/-spiderman">more</a>
+<br>magnus archives, great god grove, mouthwashing, good omens + <a href="https://rentry.co/-spiderman">more</a>
 <br>
 </p>
 <p align="center">

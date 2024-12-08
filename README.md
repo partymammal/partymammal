@@ -10,4 +10,4 @@ i like deadpool, <b>homestuck, smile for me, welcome home,</b> good omens,
 <br><b>sparklecare, dungeon meshi, great god grove, laikas comet,</b> arcane,
 <br>the magnus archives, witch hat atelier + <a href="https://rentry.co/-spiderman">more</a>
 </p>
-<p align="center"><sub>leave a comment on my <a href="https://deadpool.atabook.org/">atabook</a> if you want! i love em</sub></p>
+<p align="center"><sub>leave a comment on my <a href="https://inspekta.atabook.org/">atabook</a> if you want! i love em</sub></p>

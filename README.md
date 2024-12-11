@@ -1,4 +1,4 @@
-<h3 p align="center">WADE or FELIX HE/IT 21 ENFP <img src="https://files.catbox.moe/lyogii.png" height="18px"> <img src="https://files.catbox.moe/od5klh.png" height="18px"> <img src="https://files.catbox.moe/ud4nx6.png" height="18px"> ― <a href="https://funny.straw.page/bwuh">MORE INFO</a></h3>
+<h3 p align="center">WADE or FELIX HE/IT 21 ENFP <img src="https://files.catbox.moe/lyogii.png" height="18px"> <img src="https://files.catbox.moe/od5klh.png" height="18px"> <img src="https://files.catbox.moe/ud4nx6.png" height="18px"> ― <a href="https://funny.straw.page/">MORE INFO</a></h3>
 <p align="center"><img src="https://files.catbox.moe/omxlxe.png" width="22%"></p>
 <p align="center">
 <b>proshippers & minors dni.</b> just be decent and we'll be ok :)

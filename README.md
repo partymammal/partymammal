@@ -3,14 +3,15 @@
 <p align="center"><img src="https://files.catbox.moe/omxlxe.png" width="22%"></p>
 <p align="center">
 <b>proshippers & minors dni.</b> just be decent ! :-]
-<br>don't bother being rude! idgaf what randos think of me.</p>
+<br>don't bother being rude! i won't give a fuck.</p>
 <p align="center"><b>whisper me!</b>... i'm usually offtab, so i may not notice.
-<br>don't be scared of me, i love to chat. just be uh. normal</p>
+<br>don't be scared, i love to chat. just be uh. normal</p>
 <p align="center">
-i like <b>welcome home, homestuck, smile for me,</b> arcane,
-<br><b>welcome home, laika's comet,</b> good omens, deadpool,
+i like <b>deadpool homestuck, smile for me,</b> 
+<br><b>welcome home, laika's comet,</b> good omens,
 <br><b>sparklecare, dungeon meshi, great god grove,</b>
-<br>the magnus archives, witch hat atelier + <a href="https://rentry.co/-spiderman">more</a>
+<br>arcane, the magnus archives, witch hat atelier,
+<br>adventure time, regretevator + <a href="https://rentry.co/-spiderman">more</a>
 </p>
 <p align="center"><sub>leave a comment on my <a href="https://inspekta.atabook.org/">atabook</a> if you want! i love em</sub>
 <br><sup>my discord is partymammal! don't add me randomly though.</sup></p>

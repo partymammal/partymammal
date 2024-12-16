@@ -1,5 +1,5 @@
-<h3 p align="center">WADE or FELIX HE/IT 21 ENFP</h3>
-<p align="center"><img src="https://files.catbox.moe/lyogii.png" height="25px"> <img src="https://files.catbox.moe/od5klh.png" height="25px"> <img src="https://files.catbox.moe/ud4nx6.png" height="25px"></p>
+<h2 p align="center">WADE or FELIX HE/IT 21 ENFP
+<br><img src="https://files.catbox.moe/lyogii.png" height="20px"> <img src="https://files.catbox.moe/od5klh.png" height="20px"> <img src="https://files.catbox.moe/ud4nx6.png" height="20px"></h2>
 <p align="center"><img src="https://files.catbox.moe/omxlxe.png" width="22%"></p>
 <p align="center">
 <b>proshippers & minors dni.</b> just be decent ! :-]

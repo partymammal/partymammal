@@ -15,4 +15,4 @@ i like <b>deadpool homestuck, smile for me,</b>
 <br>adventure time, regretevator + <a href="https://rentry.co/-spiderman">more</a>
 </p>
 <p align="center"><sub>leave a comment on my <a href="https://inspekta.atabook.org/">atabook</a> if you want! i love em</sub>
-<br><sup>my discord is partymammal! don't add me randomly though.</sup></p>
+<br><sup>my discord is partymammal! feel free to add me if we've talked.</sup></p>

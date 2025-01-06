@@ -1,6 +1,6 @@
 <h2 p align="center">WADE or FELIX HE/IT 22 ENFP
 <br><img src="https://files.catbox.moe/lyogii.png" height="20px"> <img src="https://files.catbox.moe/od5klh.png" height="20px"> <img src="https://files.catbox.moe/ud4nx6.png" height="20px"></h2>
-<p align="center"><img src="https://files.catbox.moe/omxlxe.png" width="22%"></p>
+<p align="center"><img src="https://files.catbox.moe/mbvtgv.png" width="22%"></p>
 <p align="center">
 <b>proshippers & minors dni.</b> just be decent ! :-]
 <br>don't bother being rude! i won't give a fuck.</p>

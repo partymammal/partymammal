@@ -8,9 +8,9 @@
 <br>i'm usually offtab, so i may not notice local chat.
 <br>don't be scared, i love talking. just be uh. normal</p>
 <p align="center">
-i like <b>deadpool homestuck, smile for me,</b> 
+i like <b>deadpool, homestuck, smile for me,</b> 
 <br><b>welcome home, laika's comet,</b> good omens,
-<br><b>sparklecare, dungeon meshi, great god grove,</b>
+<br><b>in stars and time, dungeon meshi, great god grove,</b>
 <br>arcane, the magnus archives, witch hat atelier,
 <br>adventure time, regretevator + <a href="https://rentry.co/-spiderman">more</a>
 </p>

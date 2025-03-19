@@ -11,7 +11,7 @@
 i like <b>deadpool, homestuck, smile for me,</b> 
 <br><b>welcome home, laika's comet,</b> good omens,
 <br><b>in stars and time, dungeon meshi, great god grove,</b>
-<br>the magnus archives, witch hat atelier,
+<br>the magnus archives, witch hat atelier, slimecicle,
 <br>adventure time, regretevator + <a href="https://rentry.co/-spiderman">more</a>
 </p>
 <p align="center"><sub>leave a comment on my <a href="https://inspekta.atabook.org/">atabook</a> if you want! i love em</sub>

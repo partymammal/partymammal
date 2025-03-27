@@ -2,7 +2,7 @@
 <br><img src="https://files.catbox.moe/lyogii.png" height="20px"> <img src="https://files.catbox.moe/od5klh.png" height="20px"> <img src="https://files.catbox.moe/ud4nx6.png" height="20px"></h2>
 <p align="center"><img src="https://files.catbox.moe/jel54b.gif" width="25%"></p>
 <p align="center">
-<b>proshippers & minors dni.</b> just be decent ! :-]
+<b>proshippers + radqueer dni.</b> Yucky Icky.
 <br>don't bother being rude! i won't give a fuck.</p>
 <p align="center"><b>whisper if you want me to see your message!</b>
 <br>i'm usually offtab, so i may not notice local chat.

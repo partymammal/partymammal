@@ -6,7 +6,8 @@
 <br>don't bother being rude! i won't give a fuck.</p>
 <p align="center"><b>whisper if you want me to see your message!</b>
 <br>i'm usually offtab, so i may not notice local chat.
-<br>don't be scared, i love talking. just be uh. normal</p>
+<br>i'm very anxious, so its unlikely i'll approach
+<br>first... sorry. i promise i usually love to chat.</p>
 <p align="center">
 i like <b>deadpool, homestuck, smile for me,</b> 
 <br><b>welcome home, laika's comet,</b> good omens,

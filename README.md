@@ -6,7 +6,7 @@
 <h3 align="center">FELIX or WADE ✦ HE/IT ✦ 22</h3>
 
 <p><b>proshippers, minors and radqueer dni.</b> i don't really care what you're a fan of as long as you don't defend any nasty things.
-i rarely hide people unless you've been a consistent annoyance or if i just <i>really</i> dislike you. honestly just be kind and we'll probably get along fine!</p>
+i rarely hide people unless i just <i>really</i> dislike you. honestly just be kind and we'll probably get along fine!</p>
   
 <p><b>i go off-tab often, so i suggest whispering if you want to say something</b> otherwise i probably won't notice your message, sorry. don't be scared to interact, i'm usually happy to chat and i'm probably 
 more scared of you. i rarely approach people first and may struggle with holding conversations. <b>my discord is partymammal,</b> feel free to add me if we've talked. just tell me if you do so i know who you are.</p>

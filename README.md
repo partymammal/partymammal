@@ -9,6 +9,6 @@
 i rarely hide people unless you've been a consistent annoyance or if i just <i>really</i> dislike you. honestly just be kind and we'll probably get along fine!</p>
   
 <p><b>i go off-tab often, so i suggest whispering if you want to say something</b> otherwise i probably won't notice your message, sorry. don't be scared to interact, i'm usually happy to chat and i'm probably 
-more scared of you. i rarely approach people first and may struggle with holding conversations. <b>my discord is partymammal,</b> feel free to add me if we've talked. just tell me if/when you do so i know who you are.</p>
+more scared of you. i rarely approach people first and may struggle with holding conversations. <b>my discord is partymammal,</b> feel free to add me if we've talked. just tell me if you do so i know who you are.</p>
 <br>
 <p align="center"><sub>hey, before you go, you should sign my <a href="https://inspekta.atabook.org/">atabook</a>!</sub></p>

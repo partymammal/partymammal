@@ -1,19 +1,14 @@
-<h2 p align="center">FELIX or WADE HE/IT 22 XNFP
-<br><img src="https://files.catbox.moe/lyogii.png" height="20px"> <img src="https://files.catbox.moe/od5klh.png" height="20px"> <img src="https://files.catbox.moe/ud4nx6.png" height="20px"></h2>
-<p align="center"><img src="https://files.catbox.moe/jel54b.gif" width="25%"></p>
+<img src="https://file.garden/Z3y8p4kSxSo_bbsX/ok%20hold%20don.png" align="left" style="height: 450px;">
+<br><br>
 <p align="center">
-<b>proshippers + radqueer dni.</b> Yucky Icky.
-<br>don't bother being rude! i won't give a fuck.</p>
-<p align="center"><b>whisper if you want me to see your message!</b>
-<br>i'm usually offtab, so i may not notice local chat.
-<br>i'm very anxious, so its unlikely i'll approach
-<br>first... sorry. i promise i usually love to chat.</p>
-<p align="center">
-i like <b>deadpool, homestuck, smile for me,</b> 
-<br><b>welcome home, laika's comet,</b> good omens,
-<br><b>in stars and time, dungeon meshi, great god grove,</b>
-<br>the magnus archives, witch hat atelier, slimecicle,
-<br>adventure time, regretevator + many more.
-</p>
-<p align="center"><sub>leave a comment on my <a href="https://inspekta.atabook.org/">atabook</a> if you want! i love em</sub>
-<br><sup>my discord is partymammal! feel free to add me if we've talked.</sup></p>
+<img src="https://file.garden/Z3y8p4kSxSo_bbsX/dog%20lover.png"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/silly%20online.png"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/yaAYYYY.png">
+<img src="https://file.garden/Z3y8p4kSxSo_bbsX/not%20immune.png"</p>
+<h3 align="center">FELIX or WADE ✦ HE/IT ✦ 22</h3>
+
+<p><b>proshippers, minors and radqueer dni.</b> i don't really care what you're a fan of as long as you don't defend any nasty things.
+i rarely hide people unless you've been a consistent annoyance or if i just <i>really</i> dislike you. honestly just be kind and we'll probably get along fine!</p>
+  
+<p><b>i go off-tab often, so i suggest whispering if you want to say something</b> otherwise i probably won't notice your message, sorry. don't be scared to interact, i'm usually happy to chat and i'm probably 
+more scared of you. i rarely approach people first and may struggle with holding conversations. <b>my discord is partymammal,</b> feel free to add me if we've talked. just tell me if/when you do so i know who you are.</p>
+<br>
+<p align="center"><sub>hey, before you go, you should sign my <a href="https://inspekta.atabook.org/">atabook</a>!</sub></p>

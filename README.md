@@ -8,7 +8,7 @@
 <p><b>proshippers, minors and radqueer dni.</b> i don't care what you're a fan of, just don't defend any nasty things.
 i don't perma hide people unless i just <i>really</i> dislike you.</p>
   
-<p><b>i go off-tab often, so i suggest whispering if you want to say something</b> otherwise i probably won't notice your message, sorry. don't be scared to interact, i'm usually happy to chat and i'm probably 
-more scared of you. i rarely approach people first and may struggle with holding conversations. <b>my discord is partymammal,</b> feel free to add me if we've talked. just tell me if you do so i know who you are.</p>
+<p><b>i go off-tab often, so whisper if you want to say something!</b> otherwise i probably won't notice your message. i'm usually happy to chat, so don't be scared. howver, i rarely approach people first 
+and may struggle with holding conversations. <b>my discord is partymammal,</b> feel free to add me if we've talked. just tell me if you do.</p>
 <br><br>
 <p align="center"><sub>hey, before you go, you should sign my <a href="https://inspekta.atabook.org/">atabook</a>!</sub></p>

@@ -1,3 +1,4 @@
+> <i>proship/darkship (and anything similar) + radqueer dni. i usually don't permanently hide anyone unless i <b>really</b> dislike them.</i>
 <img src="https://file.garden/Z3y8p4kSxSo_bbsX/Ok%20maybe.png" align="left" style="width: 370px;">
 <br>
 <p align="center">
@@ -5,9 +6,8 @@
 <img src="https://file.garden/Z3y8p4kSxSo_bbsX/not%20immune.png"</p>
 <h3 align="center">FELIX or WADE ✦ HE/IT ✦ 22</h3>
   
-<p><b>i go off-tab often, so whisper if you want to say something!</b> otherwise i probably won't notice your message. i'm usually happy to chat, so don't be scared. howver, i rarely approach people first 
-and may struggle with holding conversations. <b>my discord is partymammal,</b> feel free to add me if we've talked. just tell me if you do. i rarely perma hide unless i really dislike you.</p>
+<p><b>i go off-tab often, so whisper if you want to say something!</b> otherwise i probably won't notice your message. however, i rarely approach people first and may struggle with holding conversations, but i usually love to chat.</p>
 
-<p>i like great god grove, homestuck, in stars and time, slimecicle, dungeon meshi, cookie run, deadpool, the magnus archives, steven universe, adventure time and more.</p>
+<p>i like great god grove, homestuck, in stars and time, slimecicle, dungeon meshi, cookie run, deadpool, the magnus archives, steven universe, witch hat atelier, laika's comet, adventure time and Much More.</p>
 
 <p align="center"><sub>hey, before you go, you should sign my <a href="https://inspekta.atabook.org/">atabook</a>!</sub></p>

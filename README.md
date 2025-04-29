@@ -6,7 +6,7 @@
 <h3 align="center">FELIX or WADE ✦ HE/IT ✦ 22</h3>
   
 <p><b>i go off-tab often, so whisper if you want to say something!</b> otherwise i probably won't notice your message. i'm usually happy to chat, so don't be scared. howver, i rarely approach people first 
-and may struggle with holding conversations. <b>my discord is partymammal,</b> feel free to add me if we've talked. just tell me if you do.</p>
+and may struggle with holding conversations. <b>my discord is partymammal,</b> feel free to add me if we've talked. just tell me if you do. i rarely perma hide unless i really dislike you.</p>
 
 <p>i like great god grove, homestuck, in stars and time, slimecicle, dungeon meshi, cookie run, deadpool, the magnus archives, steven universe, adventure time and more.</p>
 

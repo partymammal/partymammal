@@ -6,7 +6,8 @@
 <img src="https://file.garden/Z3y8p4kSxSo_bbsX/not%20immune.png"</p>
 <h3 align="center">FELIX or WADE ✦ HE/IT ✦ 22</h3>
   
-<p><b>i go off-tab often, so whisper if you want to say something!</b> otherwise i probably won't notice your message. however, i rarely approach people first and may struggle with holding conversations, but i usually love to chat.</p>
+<p><b>i go off-tab often, so whisper if you want to say something!</b> otherwise i probably won't notice your message. i rarely approach people first and may struggle with holding conversations, but i usually love to chat.. 
+so don't be scared of me!</p>
 
 <p>i like great god grove, homestuck, in stars and time, slimecicle, dungeon meshi, cookie run, deadpool, the magnus archives, steven universe, witch hat atelier, laika's comet, adventure time and Much More.</p>
 

@@ -11,4 +11,5 @@ i don't perma hide people unless i just <i>really</i> dislike you.</p>
 <p><b>i go off-tab often, so whisper if you want to say something!</b> otherwise i probably won't notice your message. i'm usually happy to chat, so don't be scared. howver, i rarely approach people first 
 and may struggle with holding conversations. <b>my discord is partymammal,</b> feel free to add me if we've talked. just tell me if you do.</p>
 
+<hr>
 <p align="center"><sup>hey, before you go, you should sign my <a href="https://inspekta.atabook.org/">atabook</a>!</sup></p>

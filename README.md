@@ -9,6 +9,6 @@
 <p><b>i go off-tab often, so whisper if you want to say something!</b> otherwise i probably won't notice your message. i rarely approach people first and may struggle with holding conversations, but i usually love to chat.. 
 so don't be scared of me. there are some days where i'm not as talkative, sorry.</p>
 
-<p>i like great god grove, homestuck, in stars and time, slimecicle, dungeon meshi, cookie run, deadpool, the magnus archives, steven universe, witch hat atelier, laika's comet, adventure time, my hero academia, dreamworks trolls, the muppets, disco elysium, inscryption, eddsworld and Much More.</p>
+<p>i like great god grove, homestuck, in stars and time, slimecicle, dungeon meshi, cookie run, bugsnax, deadpool, the magnus archives, steven universe, witch hat atelier, laika's comet, adventure time, my hero academia, dreamworks trolls, the muppets, disco elysium, inscryption, eddsworld and Much More.</p>
 
 <p align="center"><sub>hey, before you go, you should sign my <a href="https://inspekta.atabook.org/">atabook</a> or leave a drawing on my <a href="https://funny.straw.page/">strawpage</a></sub></p>

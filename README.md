@@ -7,6 +7,6 @@
 <img src="https://file.garden/Z3y8p4kSxSo_bbsX/not%20immune.png"</p>
 <p><b>i go off-tab often, so whisper if you want to say something!</b> otherwise i probably won't notice your message. sometimes i'm less chatty, its not personal. i'm usually happy to make friends, especially
 with those with shared interests! my discord is partymammal, just let me know before you add me.</p>
-<p>i like great god grove, jrwi (mainly riptide and upp), dispatch, genshin homestuck, in stars and time, slimecicle, dandys world, dungeon meshi, deadpool, steven universe, witch hat atelier, laika's comet, adventure time, my hero academia + much more.</p>
+<p>i like great god grove, jrwi (specifically riptide, upp, bitb, and pd), dispatch, genshin homestuck, in stars and time, slimecicle, dandys world, dungeon meshi, deadpool, steven universe, witch hat atelier, laika's comet, adventure time, my hero academia + much more.</p>
 
 <p align="center"><sub>hey, before you go, you should sign my <a href="https://inspekta.atabook.org/">atabook</a> or check out my <a href="https://funny.straw.page/">strawpage</a> for more!</sub></p>

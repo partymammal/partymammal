@@ -1,4 +1,4 @@
-> <i>darkship, lolisho + radqueer dni. i usually don't permanently hide anyone unless i <b>really</b> dislike them.</i>
+> <i>i usually don't permanently hide anyone unless they're a consistent pain. i hide freely.</i>
 <img src="https://file.garden/Z3y8p4kSxSo_bbsX/teatime.gif" align="left" style="width: 400px;">
 <br><br>
 <h3 align="center">JAY or WADE ✦ HE/IT ✦ 23</h3>

@@ -1,4 +1,4 @@
-> <i>i usually don't permanently hide anyone unless they're a consistent pain. i hide freely.</i>
+> <i>i usually don't permanently hide anyone unless they're a consistent pain. i temp hide often.</i>
 <img src="https://file.garden/Z3y8p4kSxSo_bbsX/teatime.gif" align="left" style="width: 400px;">
 <br><br>
 <h3 align="center">JAY or WADE ✦ HE/IT ✦ 23</h3>

@@ -1,4 +1,4 @@
-> <i>i usually don't permanently hide anyone unless they're a consistent pain. i temp hide often.</i>
+> <i>proship, propara, lolisho, zionists & radqueer are not welcome. i only hide people if you irritate me frequently.</i>
 <img src="https://file.garden/Z3y8p4kSxSo_bbsX/teatime.gif" align="left" style="width: 400px;">
 <br><br>
 <h3 align="center">JAY or WADE ✦ HE/IT ✦ 23</h3>

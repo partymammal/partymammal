@@ -1,5 +1,5 @@
 > <i>proship, propara, lolisho, zionists & radqueer are not welcome. i only perm hide people if you irritate me more than once.</i>
-<img src="https://file.garden/Z3y8p4kSxSo_bbsX/yum.png" align="left" style="width: 400px;">
+<img src="https://file.garden/Z3y8p4kSxSo_bbsX/ok/wadeling.png" align="left" style="width: 330px;">
 <br>
 <h3 align="center">JAY or WADE ✦ HE/IT ✦ 23</h3>
 <p align="center">

@@ -8,7 +8,7 @@
 <p><b>i go off-tab often, so whisper if you want to say something!</b> otherwise i probably won't notice your message. sometimes i'm less chatty and log on to just watch people interact, its not personal if i don't respond.</p>
 <p>i like great god grove, jrwi (specifically riptide, upp & bitb), alice in wonderland, the amazing digital circus, homestuck, in stars and time, slimecicle, dandys world, dungeon meshi, danganronpa, deadpool, steven universe, welcome home, adventure time + much more.</p>
 <p align="center"><sub>hey, before you go, you should sign my <a href="https://inspekta.atabook.org/">atabook</a> or check out my <a href="https://funny.straw.page/">strawpage</a> for more!</sub></p>
-<br><br>
+<br><br><br>
 <details>
 <summary><b>stamps</b> (lots of gifs!)</summary>
   <br>

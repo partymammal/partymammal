@@ -1,13 +1,16 @@
 > <i>proship, propara, lolisho, zionists & radqueer are not welcome. i only perm hide people if you irritate me more than once.</i>
 <img src="https://file.garden/Z3y8p4kSxSo_bbsX/ok/pride.gif" align="left" style="width: 420px;">
-<br>
-<h3 align="center">JAY or WADE ✦ HE/IT ✦ 23</h3>
+<br><h3 align="center">JAY or WADE ✦ HE/IT ✦ 23</h3>
+<p align="center" style="padding: 0; margin: 0;">
+  <img src="https://file.garden/Z3y8p4kSxSo_bbsX/ok/spongebob.gif" style="height: 40px;">
+</p>
+<p>
+  <b>i go off-tab often, so whisper if you want to say something!</b> otherwise i probably won't notice your message. sometimes i'm less chatty though.</p>
+<p>i like great god grove, jrwi (specifically riptide, upp & bitb), alice in wonderland, the amazing digital circus, homestuck, in stars and time, slimecicle, dandys world, dungeon meshi, deadpool, welcome home + much more.</p>
+<p align="center"><sub><a href="https://inspekta.atabook.org/">atabook</a> ♠ <a href="https://funny.straw.page/">strawpage</a> ♠ click team comedy img to go to my artfight</sub></p>
 <p align="center">
-<img src="https://64.media.tumblr.com/293e73d2691c6639ca5445b6d4c7f08a/8c49db604b0f3002-bb/s100x200/23dd62ea4afc62e3a47b5017e8416c721d1b40e3.png"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/silly%20online.png">
-<img src="https://file.garden/Z3y8p4kSxSo_bbsX/not%20immune.png"</p>
-<p><b>i go off-tab often, so whisper if you want to say something!</b> otherwise i probably won't notice your message. sometimes i'm less chatty and log on to just watch people interact, its not personal if i don't respond.</p>
-<p>i like great god grove, jrwi (specifically riptide, upp & bitb), alice in wonderland, the amazing digital circus, homestuck, in stars and time, slimecicle, dandys world, dungeon meshi, danganronpa, deadpool, steven universe, welcome home, adventure time + much more.</p>
-<p align="center"><sub>hey, before you go, you should sign my <a href="https://inspekta.atabook.org/">atabook</a> or check out my <a href="https://funny.straw.page/">strawpage</a> for more!</sub></p>
+  <a href="https://artfight.net/~partymammal"><img src="https://file.garden/Z3y8p4kSxSo_bbsX/ok/team%20comed.png" style="height: 60px;"></a>
+</p>
 <br><br><br>
 <details>
 <summary><b>stamps</b> (lots of gifs!)</summary>

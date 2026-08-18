@@ -1,12 +1,12 @@
 > <i>proship, propara, lolisho, zionists & radqueer are not welcome. i block & hide freely to curate my Horse World experience, don't be a loser.</i>
-<img src="https://file.garden/Z3y8p4kSxSo_bbsX/ok/centi.gif" align="left" style="width: 465px;">
+<img src="https://file.garden/Z3y8p4kSxSo_bbsX/ok/centi.gif" align="left" style="width: 400px;">
 <br><h3 align="center">JAY or WADE ✦ HE/IT ✦ 23</h3>
 <p align="center" style="padding: 0; margin: 0;">
   <img src="https://file.garden/Z3y8p4kSxSo_bbsX/ok/spongebob.gif" style="height: 40px;">
 </p>
 <p>
   <b>i go off-tab often, so whisper if you want to say something!</b> otherwise i probably won't notice your message. sometimes i'm less chatty though.</p>
-<p>i like great god grove, jrwi (specifically riptide, upp & bitb), alice in wonderland, the amazing digital circus, homestuck, in stars and time, slimecicle, dandys world, dungeon meshi, deadpool, welcome home + much more.</p>
+<p>i like great god grove, jrwi (specifically riptide, upp & bitb), alice in wonderland, the amazing digital circus, homestuck, in stars and time, slimecicle, rick and morty, dungeon meshi, deadpool, welcome home + much more.</p>
 <p align="center"><sub><a href="https://inspekta.atabook.org/">atabook</a> ♠ <a href="https://funny.straw.page/">strawpage</a></sub></p>
 <br><br><br>
 <details>

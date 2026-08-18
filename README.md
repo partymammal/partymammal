@@ -1,5 +1,5 @@
 > <i>proship, propara, lolisho, zionists & radqueer are not welcome. i block & hide freely to curate my Horse World experience, don't be a loser.</i>
-<img src="https://file.garden/Z3y8p4kSxSo_bbsX/ok/centi.gif" align="left" style="width: 400px;">
+<img src="https://file.garden/Z3y8p4kSxSo_bbsX/ok/centi.gif" align="left" style="width: 420px;">
 <br><h3 align="center">JAY or WADE ✦ HE/IT ✦ 23</h3>
 <p align="center" style="padding: 0; margin: 0;">
   <img src="https://file.garden/Z3y8p4kSxSo_bbsX/ok/spongebob.gif" style="height: 40px;">

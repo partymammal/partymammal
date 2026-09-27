@@ -1,16 +1,15 @@
-> <i>proship, propara, lolisho, zionists, & radqueer are not welcome. i block & hide freely to curate my Horse World experience, don't be a loser.</i>
-<img src="https://file.garden/Z3y8p4kSxSo_bbsX/hi/centi.gif" align="left" style="width: 450px;">
-<br><h3 align="center">JAY or WADE ✦ HE/IT ✦ ADULT</h3>
-<p align="center" style="padding: 0; margin: 0;">
-  <img src="https://file.garden/Z3y8p4kSxSo_bbsX/ok/spongebob.gif" style="height: 40px;">
-</p>
-<p>
-  <b>i go off-tab often, so whisper if you want to say something!</b> otherwise i probably won't notice your message. sometimes i'm less chatty, don't take it personally! i like to come on and just chill with my friends.</p>
-<p>i like great god grove, jrwi (specifically riptide, upp, apotheosis & bitb), endacopia, alice in wonderland, the amazing digital circus, homestuck, in stars and time, slimecicle, rick and morty, dungeon meshi, deadpool, welcome home + much more.</p>
-<p align="center"><sub><a href="https://inspekta.atabook.org/">atabook</a> ♠ <a href="https://funny.straw.page/">strawpage</a> ♠ <a href="https://thedrain.nekoweb.org/">my website</a></sub></p>
+> <i>proship, propara, lolisho, zionists, & radqueer are not welcome. i block & hide freely.</i>
+<img src="https://file.garden/Z3y8p4kSxSo_bbsX/ok/mochx.gif" style="width: 200px;" align="left">
+<br><b>JAY or WADE ✦ HE/IT ✦ ADULT</b>
 <br>
-<details>
-<summary><b>stamps</b> (lots of gifs!)</summary>
-  <br>
-<img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/one.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/forgetful.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/artblock.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/muppet.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/cards2.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/swaf.png"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/bubble.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/gooble.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/cooler.png"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/peter.png"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/fav.png"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/fade.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/omg.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/support.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/prankster.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/caliborn.png"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/tv.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/pour.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/ralsei.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/juggle.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/computer.gif"><img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/brobot.gif"><img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/euuh.gif"><img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/tired.gif"><img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/frown.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/jke.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/microwaved.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/peggle.png"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/20.png"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/sad.png"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/derp.png"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/explosion.png"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/yay.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/bee.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/legs.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/dp.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/bl.png"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/fish.png"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/winter.png"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/stars.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/piracy.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/disconnected.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/wink.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/burger.png"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/logout.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/csp.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/rainy%20days.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/yoai.jpg"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/me%20if%20you%20care.gif"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/stamps/aww%20singing.gif">
-</details>
+<p>
+  <sub>usually offtab, whisper if you want to talk or i might miss it.
+  <br>i don't usually look in local chat, sorry.</sub>
+</p>
+  <sub>
+  i like great god grove, jrwi, endacopia, alice in wonderland, 
+  <br>the amazing digital circus, homestuck, in stars and time, 
+  <br>slimecicle, deadpool + more.
+  </sub>
+  </p>
+<p><sup><a href="https://inspekta.atabook.org/">atabook</a> ♠ <a href="https://funny.straw.page/">strawpage</a> ♠ <a href="https://thedrain.nekoweb.org/">my website</a></sup></p>

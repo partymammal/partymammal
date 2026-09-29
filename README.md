@@ -1,10 +1,10 @@
 > <i>proship, propara, lolisho, zionists, & radqueer are not welcome. i block & hide freely.</i>
-<img src="https://file.garden/Z3y8p4kSxSo_bbsX/ok/mochx.gif" style="width: 200px;" align="left">
+<img src="https://file.garden/Z3y8p4kSxSo_bbsX/ok/friendthing.gif" style="width: 260px;" align="left">
 <br><b>JAY or WADE ✦ HE/IT ✦ ADULT</b>
 <br>
 <p>
-  <sub>usually offtab, whisper if you want to talk or i might miss it.
-  <br>i don't usually look in local chat, sorry.</sub>
+  <sub>usually offtab, whisper if you want to say something or i might 
+  <br>not see it. i don't look in local chat most of the time, sorry.</sub>
 </p>
   <sub>
   i like great god grove, jrwi, endacopia, alice in wonderland, 
